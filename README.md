@@ -1,2 +1,3 @@
 # kaktusarna
-kaktusy všude.
+
+Kaktusy všude. I u tebe doma.
